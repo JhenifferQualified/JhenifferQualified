@@ -1,5 +1,5 @@
-# 💫 About Me:
-Back-End & Front-End/ MySQL / Analista de requisitos / Figma / Illustrator / Proativa / Dev /  
+# 💫 Sobre mim:
+Engenheira de Software em Formação | Desenvolvedora Full Stack | UI/UX Designer | Analista de Requisitos.
 
 
 ## 🌐 Socials:
